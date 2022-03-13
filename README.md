@@ -1,4 +1,4 @@
-- 👋 Hi,iem là @Condikhumdin day
+- 👋 Hi, em là @Condikhumdin day
 - 👀 Chị đó em đang nói chị đó 
 - Người rỳ dou mà suốt ngày đòi đánh ngta 🥲
 - 💞️ nma hoi khum sao chị vẫn rấc là tuỵt zoi
